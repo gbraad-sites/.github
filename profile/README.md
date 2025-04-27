@@ -1,2 +1,2 @@
-Gerard Braad's sites
+Gerard Braad's pages
 ====================
